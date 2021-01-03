@@ -7,3 +7,5 @@ To make sure it is a good investment opening the surf/icecream shop we must expl
 
 ## Results
 
+![Screen Shot 2021-01-02 at 6 38 02 PM](https://user-images.githubusercontent.com/72036895/103470076-a361e880-4d2a-11eb-9a5f-7c8e84290f53.png)
+
